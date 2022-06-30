@@ -5,6 +5,6 @@ My name is Juliana! I'm Graduated in Civil Engineering, but passionate about Fro
 I would love to learn and share with you 📚<br><br>
 
 ### 💬 Get in touch
-LinkedIn: https://www.linkedin.com/in/juliana-burzlaff/ <br>
+LinkedIn: https://www.linkedin.com/in/juliana-burzlaff <br>
 E-mail: [burzlaff.juliana@gmail.com](mailto:burzlaff.juliana@gmail.com)
 
